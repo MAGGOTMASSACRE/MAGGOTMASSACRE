@@ -55,4 +55,4 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
 </details>
 
 
-![bottom](https://64.media.tumblr.com/dc84cc1171fc8efd6b815f7a7748e7f1/a3a1eca17b8da81e-1a/s1280x1920/1a2abfdf39b15e6c462a79ad9d4bbadb7b9d0757.jpg)
+![bottom](https://64.media.tumblr.com/dbea17ea443e21b43e73ca7fd7886b68/a6cbeb2ee02d5abe-9d/s2048x3072/a143bd84ecc59c52634aa52e86eaee98314bac80.pnj)
