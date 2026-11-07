@@ -1,7 +1,7 @@
 
 ![banner](https://64.media.tumblr.com/2d04669664f8117d2f115162b9ea0685/a3a1eca17b8da81e-0b/s1280x1920/8fd9689521ddef823e32629f10d0b37d8aefa873.gifv)
 
-![](https://pin.it/2w0k08IB5)
+![](https://www.tumblr.com/snufkinsong/762910480779083776/hello-hello?utm_source=Pinterest&utm_medium=organic)
 he/him. 16- and 20+ DNI unless needed. 
 
 im probably in a bad mood or just don't want negative interactions due to it affecting me more 
