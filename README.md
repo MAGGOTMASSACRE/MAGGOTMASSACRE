@@ -37,7 +37,7 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
 ---
 
 <div align="center">
-  <p>✨ <i>"Unless it's a farm!"</i> ✨</p>
+  <p>   <i>"Unless it's a farm!"</i>   </p>
 </div>
 <details>
   <summary>stamps</summary>
