@@ -2,7 +2,7 @@
 ![banner](https://64.media.tumblr.com/2d04669664f8117d2f115162b9ea0685/a3a1eca17b8da81e-0b/s1280x1920/8fd9689521ddef823e32629f10d0b37d8aefa873.gifv)
 
 ![](https://64.media.tumblr.com/03e5962b3dfecffff9c9a0be37dc6060/cd1bca368b9cb0a6-b0/s250x400/fd754331fe299a37d9123bce7e088b0ef274164c.gifv)
-he/him. 16- and 20+ DNI unless needed. 
+he/him. 16- and 20+ DNI. 
 
 im probably in a bad mood or just don't want negative interactions due to it affecting me more 
 
@@ -34,7 +34,11 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
  </details>
 
  
- 
+---
+
+<div align="center">
+  <p>✨ <i>"Unless it's a farm!"</i> ✨</p>
+</div>
 <details>
   <summary>stamps</summary>
   
